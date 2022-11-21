@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @philphonetix
+- 👀 I’m interested in musique and moore    
+- 🌱 I’m currently learning coding  
